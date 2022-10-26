@@ -5,7 +5,7 @@ For a quick check to see if your [sporran](https://scottishkiltshop.com/collecti
 
 ![how to wear a sporran](https://toolxox.com/dl/2/ay/tmp/img2/dl.beatsnoop.com-1666780082.jpg)
 
-##Tips:
+#Tips:
 In the event of the dance of a ceilidh or another it is possible to shift the sporran to the left or to the right in the kilt.
 The finish of the chain straps should always be the same as the finish of the cantle. Matt and polished Pewter are the most sought-after choices. If you want to display their wealth, you could opt for gold!
 Leather straps are attached on each end of the chain strap. They then pass across the belts on the Kilt, and connect in the back.

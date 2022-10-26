@@ -10,12 +10,12 @@ In the event of the dance of a ceilidh or another it is possible to shift the sp
 The finish of the chain straps should always be the same as the finish of the cantle. Matt and polished Pewter are the most sought-after choices. If you want to display their wealth, you could opt for gold!
 Leather straps are attached on each end of the chain strap. They then pass across the belts on the Kilt, and connect in the back.
 Insider tip: ensure that your chain straps sit placed on the top of the belt buckle, and not beneath. This mistake can mean that you are unable to use your sporran in the middle of an event!
-Feed chain through loops at the back of the kilt & Fasten buckle
-Adjust sporran to rest on the lower abdomen
-Secure chain over top buckles
-Ensure sporran is centered
-For Our Customers
-At [the scotland kilt company](https://scottishkiltshop.com/), we won’t rest until you’re satisfied. We want your wedding to be a complete success.
+1.Feed chain through loops at the back of the kilt & Fasten buckle
+2.Adjust sporran to rest on the lower abdomen
+3.Secure chain over top buckles
+4.Ensure sporran is centered
+5.For Our Customers
+At the scotland kilt company, we won’t rest until you’re satisfied. We want your wedding to be a complete success.
 We hope that our guide lifts the pressure a bit and serves you well in your search. The wedding you will attend will be a hit if you buy a Kilt and Accessories from us. Need some more information about Wedding Kilts? We’ll be glad to assist you. Contact us: at (800) 999-0100 or support@scottishkiltshop.com for assistance.
  
 

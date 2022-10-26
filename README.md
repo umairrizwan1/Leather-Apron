@@ -1,9 +1,9 @@
 # How to wear a sporran :
 Sporrans are available in a variety of styles and designs, a variety to suit any occasion.
 If worn correctly The sporran must be placed just on the edge of the kilt. It should be centered to your waistcoat, usually in the groin region. It must be placed underneath the waistcoat but not in touch with. The sporran should sit about three fingers away from your belt buckle and about 4-5 inches away at the highest point of your kilt.
-For a quick check to see if your [sporran](https://scottishkiltshop.com/collections/sporrans-for-sale)) is creating the appropriate tone, trace a vertical line across your clothing. It is recommended to draw it in a fictional manner in case you want to create a new style. The line should run through the waistcoat's buttons and the bow-tie or tie as well as the sporran and that belt buckle on the Kilt.
+For a quick check to see if your [sporran](https://scottishkiltshop.com/collections/sporrans-for-sale) is creating the appropriate tone, trace a vertical line across your clothing. It is recommended to draw it in a fictional manner in case you want to create a new style. The line should run through the waistcoat's buttons and the bow-tie or tie as well as the sporran and that belt buckle on the Kilt.
 
-![how to wear a sporran](https://toolxox.com/dl/2/ay/tmp/img2/dl.beatsnoop.com-1666780082.jpg))
+![how to wear a sporran](https://toolxox.com/dl/2/ay/tmp/img2/dl.beatsnoop.com-1666780082.jpg)
 
 ##Tips:
 In the event of the dance of a ceilidh or another it is possible to shift the sporran to the left or to the right in the kilt.
